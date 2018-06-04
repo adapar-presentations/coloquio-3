@@ -1,0 +1,3 @@
+# Tres lemas para la quietud
+
+Preguntar por las posibilidades creativas de la inmovilidad en la práctica teatral implica reflexionar sobre el movimiento, sus dimensiones y sus manifestaciones. Durante este proceso de reflexión, que hace parte de la etapa inicial de mi proyecto, han surgido tres lemas que podrían servir de ejes articuladores para experiencias escénicas relacionadas con la inmovilidad. Estos lemas se refieren a las dimensiones interna y externa del movimiento, a su relación con el pánico, al rol de la música como mediador entre pánico y movimiento, y a la percepción del propio cuerpo y de los cuerpos ajenos. En conjunto, son un acercamiento inicial al potencial de la experiencia de inmovilidad para el trabajo en escena.
